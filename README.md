@@ -1,7 +1,5 @@
-### Hi this account for bad thing👿
+### Hello World👿
  I had no idea, can someone tell me a joke?
-
-### F*CK OFF STALKER
 
 <!--
 **Makhall/Makhall** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
