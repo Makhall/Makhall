@@ -1,4 +1,5 @@
 ### Hi this account for bad thing
+ I had no idea, can someone tell me a joke?
 
 ### F*CK OFF STALKER
 
